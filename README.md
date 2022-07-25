@@ -1,4 +1,4 @@
-Hi! I am Wotabaka. This is my Github account.
+Hi! I am Mob a.k.a wotabaka. This is my Github account.
 
 Contact me:
 * [wotabaka](https://t.me/wotabaka)
